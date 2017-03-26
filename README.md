@@ -15,3 +15,7 @@ Sample website with plenty of files for demos
 # Other stuff
 
 ## New Other Stuff
+
+# Copyright
+
+Copyright notice
