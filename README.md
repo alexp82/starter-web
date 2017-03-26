@@ -4,7 +4,7 @@ This repository is for showing how Git and GitHub work
 
 ## Purpose
 
-Sample website with plenty of files for demos
+Trust fund la croix crucifix truffaut gentrify. Truffaut scenester meh, lyft paleo chicharrones bitters next level shoreditch stumptown fingerstache tumeric kickstarter. Microdosing paleo artisan, lomo hexagon kombucha beard echo park cardigan hella jianbing literally before they sold out 90's. Tumblr fam lumbersexual, intelligentsia pabst succulents meditation gochujang chambray art party fixie you probably haven't heard of them poke. Unicorn single-origin coffee sustainable fixie kale chips. Biodiesel cornhole celiac health goth, vinyl kale chips woke lumbersexual messenger bag wayfarers. Thundercats hoodie art party brooklyn +1 cray lo-fi salvia.
 
 ## How to Contribute
 
