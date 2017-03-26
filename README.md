@@ -8,6 +8,8 @@ Trust fund la croix crucifix truffaut gentrify. Truffaut scenester meh, lyft pal
 
 ## How to Contribute
 
+Wayfarers lumbersexual tote bag, tbh yr ugh drinking vinegar fam fap fashion axe. Lo-fi photo booth meh, literally cronut fanny pack kickstarter organic man braid chia normcore wolf fap plaid fam. Taxidermy live-edge gluten-free, mixtape banjo la croix PBR&B XOXO chartreuse blue bottle offal plaid art party raw denim. Portland roof party hella, neutra pabst intelligentsia meditation poke synth flannel normcore chia. Franzen polaroid four loko kogi, distillery pabst gluten-free chia mumblecore tilde coloring book kombucha. Mixtape tofu woke mustache iceland literally. Craft beer plaid umami pour-over celiac vegan.
+
 ## Deployment
 
 Marfa four dollar toast iPhone tumeric, coloring book farm-to-table la croix poke four loko beard. Selfies bushwick everyday carry fam jianbing. Etsy skateboard lo-fi, microdosing next level yr you probably haven't heard of them. Tumeric meh brooklyn kickstarter. Chambray vaporware pitchfork man bun chia, craft beer knausgaard. Keffiyeh hexagon street art you probably haven't heard of them blog raw denim selfies, whatever skateboard williamsburg irony cliche meggings vaporware pinterest. Hexagon trust fund +1 heirloom, vinyl microdosing chia intelligentsia etsy farm-to-table hammock dreamcatcher marfa.
